@@ -1,8 +1,4 @@
-# test 
-hii rushikaa
-okkk
+🙏 namaste ☺
+hello!
 
-we
-qwertuiop
-test1 2 3
 
